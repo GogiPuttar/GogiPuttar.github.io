@@ -1,1 +1,1 @@
-# GogiPuttar.github.io
+# Hey! This is Aditya Nair's portfolio. I'm really sorry but I'm currently making some improvements to it right now. Should you see this, please know that it'll be back up and running in a couple of days :)
